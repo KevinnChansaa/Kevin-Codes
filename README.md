@@ -1,3 +1,3 @@
 # Kevin_Codes
-Halo ini free
-sayonara sampai jumpa
+Halo ini free gass
+sayonara sampai 
